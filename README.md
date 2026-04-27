@@ -15,7 +15,7 @@
 </div>
 
 <div align="center">
-  Helloww I'm Kieran <3
+  Helloww I'm Kieran <3 (Ocean is a nickname)
 </div>
     
 <div align="center">
