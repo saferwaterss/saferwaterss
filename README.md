@@ -27,7 +27,7 @@
 </div>
 
 <div align="center">
-  Never not in the CoD area ♡
+  Strawpage is under construction ! Will be up again soon ^^
 </div>
 
 <div align="center">
