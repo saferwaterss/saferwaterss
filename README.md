@@ -51,7 +51,7 @@
 </div>
 
 <div align="center">
-  I love playing OW and DBD with literally anyone, so always feel free to ask to play !
+  I love playing OW, Dandy's World, and DBD with literally anyone, so always feel free to ask to play !
 </div>
 
 <div align="center">
