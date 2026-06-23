@@ -19,7 +19,7 @@
 </div>
     
 <div align="center">
-  He/Him/They/Them (pref. He/Him)
+  Any pronouns (pref. He/Him) + I am 22 ^^
 </div>
 
 <div align="center">
