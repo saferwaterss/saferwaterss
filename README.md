@@ -19,7 +19,7 @@
 </div>
     
 <div align="center">
-  Any pronouns (pref. He/Him) + I am 22 ^^
+  He/Him/They/Them + I am 22 ^^
 </div>
 
 <div align="center">
@@ -47,7 +47,7 @@
 </div>
 
 <div align="center">
-  Dead By Daylight - ask !
+  Roblox - wolfiesarus
 </div>
 
 <div align="center">
