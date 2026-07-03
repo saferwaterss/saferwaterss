@@ -52,7 +52,7 @@
 
 <div align="center">
   I love playing OW, Dandy's World, and DBD with literally anyone, so always feel free to ask to play !
-  (( I also love Resident Evil and Devil May Cry a LOT, so int if you do too !!1!))
+  I also love Resident Evil and Devil May Cry a LOT, so int if you do too !!1!
 </div>
 
 <div align="center">
