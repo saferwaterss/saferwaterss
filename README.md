@@ -55,7 +55,7 @@
 </div>
 
 <div align="center">
-  I also really love Resident Evil, Devil May Cry, and COD a LOT, so int if you do too !!1!
+  I also really love Resident Evil, Devil May Cry, and CoD a LOT, so int if you do too !!1!
 </div>
 
 <div align="center">
