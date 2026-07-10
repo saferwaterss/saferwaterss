@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/eb68385d1eb129cde3c2a7f593fc5675/2d51963e4fde9b4a-c6/s400x600/261bfd3a6735d4046d45f309bd57706a5536f6c5.gifv" alt="skull divider">
+  <img src="https://64.media.tumblr.com/261e54257bb46f53dfc81c94dfed38db/4b35b825532bfe47-0d/s400x600/079865fbdab31d42c7a7f7d90f7c135904b09714.gifv" alt="bat divider">
 </div>
 
 <div align="center">
