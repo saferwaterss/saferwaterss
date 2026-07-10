@@ -101,6 +101,12 @@
 </div>
 
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=saferwaterss&label=Demons&color=blueviolet&style=plastic&base=1290&abbreviated=true)
+
+</div>
+
+<div align="center">
   <img src="https://64.media.tumblr.com/e80714e39cbaae0c01c04db781f98ce3/a4b84fccfcb61ce0-cf/s400x600/aa8f1b1c20c65605a6713b399c4396cc63885227.jpg" alt="leon sticker">
 </div>
 
@@ -109,11 +115,5 @@
 </div>
 
 <div align="center">
-  
-![](https://komarev.com/ghpvc/?username=saferwaterss&label=Demons&color=blueviolet&style=plastic&base=1290&abbreviated=true)
-
-</div>
-
-<div align="center">
-  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
+  <img src="https://64.media.tumblr.com/9b721be3dd435fbffa9143d8d80ed770/632ca4d7b8a688d8-fb/s400x600/d09d87a80736bbf7acf1d8385b2ea45a8e477d6e.gifv" alt="rose divider">
 </div>
