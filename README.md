@@ -39,6 +39,10 @@
 </div>
 
 <div align="center">
+  ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
+</div>
+
+<div align="center">
   !!! socials/gametags : (below) !!!
 </div>
 
