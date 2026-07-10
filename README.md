@@ -1,9 +1,9 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj" alt="cross divider">
+  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/4428b83decf6dbbfb1d63a487ba29069/ce395fe706b7eaa8-41/s100x200/0ce32711595b96c56c86f9206cd31e6e9aa7d0a3.gifv" alt="shark stamp">
+  <img src="https://64.media.tumblr.com/027dc00e02865dadb3b794f3d9b963d6/8fb6ded54ae7f514-ed/s250x400/ab0b24837a2c120afcdf0da8a56c668e4e61da42.pnj" alt="book stamp">
 </div>
 
 <div align="center">
@@ -89,7 +89,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
+  <img src="https://64.media.tumblr.com/bf8f8a05462aec11eb2c03b6c26114e4/437b996daeeb918d-ed/s400x600/2e09170845fb774330795e02df258d5c14ea5923.pnj" alt="purp heart small divider">
 </div>
 
 <div align="center">
@@ -97,7 +97,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/cb2029d0649ccc539a3aeaf4ff0df25a/57068ea284cd037d-3f/s540x810/99d8a83f436dfaf73ed081028c0ecb507b6faab0.gifv" alt="bubbles divider">
+  <img src="https://64.media.tumblr.com/4965342aa348b0f782ab2a3f42e8e0bb/437b996daeeb918d-31/s400x600/ea8943b78ce11a56343116797b64f238643109f8.gifv" alt="purp heart divider">
 </div>
 
 <div align="center">
@@ -107,5 +107,5 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj" alt="cross divider">
+  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
 </div>
