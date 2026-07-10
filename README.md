@@ -89,7 +89,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/3e9ac8a847c02cc02b317f850b20b68d/94de515ad135a9de-bf/s400x600/f0a2cab251d587f807b534b4e7816242c78c5305.gifv" alt="bubbles divider">
+  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
 </div>
 
 <div align="center">
