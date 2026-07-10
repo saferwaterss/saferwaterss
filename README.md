@@ -98,7 +98,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/60d5e978837fa62b5fca710593a58b09/3671a26edef10d5d-17/s100x200/f99ccd922622663c595aa509e19d2a6485b03f3b.gifv" alt="leon stamp">
+  <img src="https://64.media.tumblr.com/96a1a311fffbf451ee098ce993db5450/da87c4a1be3fb075-a8/s100x200/ebac66f507e4ee0fb62b7a015573fba8f397276b.pnj" alt="blot stamp">
 </div>
 
 <div align="center">
