@@ -3,6 +3,10 @@
 </div>
 
 <div align="center">
+  <img src="https://64.media.tumblr.com/cf3ff15266560eba695f0d50d2257351/198b82be58eb73d2-92/s250x400/6a0b35acee5a922f073b58c2ab0e56971fb5fe0a.gifv" alt="v stamp">
+</div>
+
+<div align="center">
   <img src="https://64.media.tumblr.com/027dc00e02865dadb3b794f3d9b963d6/8fb6ded54ae7f514-ed/s250x400/ab0b24837a2c120afcdf0da8a56c668e4e61da42.pnj" alt="book stamp">
 </div>
 
