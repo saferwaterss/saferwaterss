@@ -106,7 +106,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/e80714e39cbaae0c01c04db781f98ce3/a4b84fccfcb61ce0-cf/s400x600/aa8f1b1c20c65605a6713b399c4396cc63885227.jpg" alt="leon sticker">
+  <img src="https://64.media.tumblr.com/516da6d5e269fdbc3ce02e994a1919ad/35b42dd1a627610b-a8/s400x600/f7d34d2658f07314f0e6a15328c7d20c499624bd.gifv" alt="blot sticker">
 </div>
 
 <div align="center">
