@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/03b932362117dfbecfc9a5824180a430/c751c335e9f91105-d6/s250x400/77fe2af94f21d1fdcb9a6a748fb35bf33968c2f0.gifv" alt="ocean floor stamp">
+  <img src="https://64.media.tumblr.com/44a3b8e70a45847056f6457cde3e6d4e/c81ccb3951f5db6d-21/s400x600/ba56edc6bddd28820a4faae94afe9211e0a2e82a.gifv" alt="words stamp">
 </div>
 
 <div align="center">
@@ -80,7 +80,7 @@
 
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/7ec46eb838703d9618fb767ca3a1de4c/c751c335e9f91105-b1/s250x400/09938ee12c76715938166a570e5048f73f84f2ed.gifv" alt="sharks blinkie">
+  <img src="https://64.media.tumblr.com/048e7c985205f80417f3ff0e44a342bd/4c050c492c560ed6-0d/s250x400/1ce43485da5825dddb6dfebb6d81a277596b0655.pnj" alt="heart blinkie">
 </div>
 
 
