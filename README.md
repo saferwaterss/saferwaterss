@@ -11,7 +11,7 @@
 </div>
 
 <div align="center">
- ˚˖𓍢ִִ໋🌊🦈˚˖𓍢ִ✧˚.
+ ⩇⩇:⩇⩇
 </div>
 
 <div align="center">
