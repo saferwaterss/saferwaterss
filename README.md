@@ -27,7 +27,7 @@
 </div>
 
 <div align="center">
-  Strawpage is under construction ! Will be up again soon ^^
+  I am engaged so pleassseee chill with the flirting jokes everypony..
 </div>
 
 <div align="center">
