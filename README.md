@@ -79,7 +79,7 @@
 </div>
 
 <div align="center">
-𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 </div>
 
 <div align="center">
