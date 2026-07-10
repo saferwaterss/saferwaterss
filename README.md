@@ -91,6 +91,11 @@
   <img src="https://64.media.tumblr.com/048e7c985205f80417f3ff0e44a342bd/4c050c492c560ed6-0d/s250x400/1ce43485da5825dddb6dfebb6d81a277596b0655.pnj" alt="heart blinkie">
 </div>
 
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=saferwaterss&label=Demons&color=blueviolet&style=plastic&base=1290&abbreviated=true)
+
+</div>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/60d5e978837fa62b5fca710593a58b09/3671a26edef10d5d-17/s100x200/f99ccd922622663c595aa509e19d2a6485b03f3b.gifv" alt="leon stamp">
@@ -98,12 +103,6 @@
 
 <div align="center">
   <img src="https://64.media.tumblr.com/bf8f8a05462aec11eb2c03b6c26114e4/437b996daeeb918d-ed/s400x600/2e09170845fb774330795e02df258d5c14ea5923.pnj" alt="purp heart small divider">
-</div>
-
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=saferwaterss&label=Demons&color=blueviolet&style=plastic&base=1290&abbreviated=true)
-
 </div>
 
 <div align="center">
