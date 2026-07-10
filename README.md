@@ -102,7 +102,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=wolfiesarus&color=blue&style=plastic&base=315&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=wolfiesarus&color=black&style=plastic&base=315&abbreviated=true)
 
 </div>
 
