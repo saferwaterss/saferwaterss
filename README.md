@@ -31,7 +31,7 @@
 </div>
 
 <div align="center">
-  ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
+  ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 </div>
 
 <div align="center">
