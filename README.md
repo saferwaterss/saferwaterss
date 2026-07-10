@@ -43,27 +43,27 @@
 </div>
 
 <div align="center">
-  !!! socials/gametags : (below) !!!
+  !!! MDNI if at all possible plspls !!!
 </div>
 
 <div align="center">
-  Discord - wolfiesarus
+  My fandoms/hyperfixations vv (belowww)
 </div>
 
 <div align="center">
-  Battletag (for Overwatch) - saveahorse#11521
+  Devil May Cry, Dandy's World, Resident Evil, Overwatch, Dead By Daylight, Sonic, Dark Souls + Elden Ring
 </div>
 
 <div align="center">
-  Roblox - wolfiesarus
+  Feel free to int with me !! I am offtab/afk often, so I'm sorry if i don't reply right away :(
 </div>
 
 <div align="center">
-  I love playing OW, Dandy's World, and DBD with literally anyone, so always feel free to ask to play !
+  Discord - wolfiesarus  :  I'd love to meet new friends hehe
 </div>
 
 <div align="center">
-  I also really love Resident Evil, Devil May Cry, and CoD a LOT, so int if you do too !!1!
+  V (dmc), Leon (rese), Blot + Goob (dw) kisser ^^
 </div>
 
 <div align="center">
@@ -71,7 +71,7 @@
 </div>
 
 <div align="center">
-  All other information can be found on my strawpage !!!
+  Check out my strawpage n' ata for a free hug yayayayaya
 </div>
 
 <div align="center">
