@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/bbb3d1380b0d61d89ea5e839e1e872be/57068ea284cd037d-a5/s1280x1920/412a92a00b25d2b0ad50b36d879f79306f45b176.pnj" alt="ticket divider">
+  <img src="https://64.media.tumblr.com/eb68385d1eb129cde3c2a7f593fc5675/2d51963e4fde9b4a-c6/s400x600/261bfd3a6735d4046d45f309bd57706a5536f6c5.gifv" alt="skull divider">
 </div>
 
 <div align="center">
