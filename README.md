@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/c795ca65f97f9182ab44d15b425acd4e/bd18075af3e4e71a-be/s1280x1920/35a07207b347e9a0d9d2c4e3d01f9fefd4d0e8e3.gifv" alt="anchor divider">
+  <img src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj" alt="cross divider">
 </div>
 
 <div align="center">
