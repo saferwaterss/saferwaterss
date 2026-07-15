@@ -51,7 +51,11 @@
 </div>
 
 <div align="center">
-  Devil May Cry, Dandy's World, Resident Evil, Hellsing, Overwatch, Dead By Daylight, Sonic, Dark Souls + Elden Ring
+  Devil May Cry, Dandy's World, Resident Evil, Hellsing + Hellsing Ultimate
+</div>
+
+<div align="center">
+  Overwatch, Dead By Daylight, Sonic, Dark Souls + Elden Ring
 </div>
 
 <div align="center">
