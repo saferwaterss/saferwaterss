@@ -120,3 +120,7 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/9b721be3dd435fbffa9143d8d80ed770/632ca4d7b8a688d8-fb/s400x600/d09d87a80736bbf7acf1d8385b2ea45a8e477d6e.gifv" alt="rose divider">
 </div>
+
+<div align="center">
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6K4248RFV)
+</div>
