@@ -19,7 +19,7 @@
 </div>
     
 <div align="center">
-  He/Him/They/Them + I am 22 ^^
+  He/Him/His + I am 22 so PLEASEE iwec if under 18 ^^
 </div>
 
 <div align="center">
