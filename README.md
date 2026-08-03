@@ -43,7 +43,7 @@
 </div>
 
 <div align="center">
-  !!! MDNI if at all possible plspls !!!
+  !!! I get confused very easy, pls be patient !!!
 </div>
 
 <div align="center">
