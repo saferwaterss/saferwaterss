@@ -55,7 +55,7 @@
 </div>
 
 <div align="center">
-  Overwatch, Dead By Daylight, Sonic, Dark Souls + Elden Ring
+  Overwatch, Dead By Daylight, Sonic, Dark Souls, Animal Hospital, Pressure
 </div>
 
 <div align="center">
@@ -67,7 +67,11 @@
 </div>
 
 <div align="center">
-  V (dmc), Leon (rese), Blot + Goob (dw) kisser ^^
+  I am a poly-yumeshipper (multiple F/O's) !!! please dni if you're uncomf with that :c i mostly mirror-share !
+</div>
+
+<div align="center">
+  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Shadow The Hedgehog, Ron From Accounting (aha), Sebastian Solace
 </div>
 
 <div align="center">
