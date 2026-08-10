@@ -75,7 +75,7 @@
 </div>
 
 <div align="center">
-  Kins -> Silver T. Hedgehog, Nero (DMC4-5), Juno (OW), Sable Ward (DBD), Goob (DW)
+  Kins -> Silver T. Hedgehog, Nero (DMC4-5), Juno (OW), Sable Ward (DBD), Goob (DW), Leon Kennedy
 </div>
 
 <div align="center">
