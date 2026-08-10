@@ -71,11 +71,11 @@
 </div>
 
 <div align="center">
-  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Edward Richtofen, Ron From Accounting
+  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Sebastian Solace, Ron From Accounting
 </div>
 
 <div align="center">
-  Sebastian Solace, Blot (DW), Soulvester (DW), Loathe (my CoD oc), Dante Sparda
+  Kins -> Silver T. Hedgehog, Nero (DMC4-5), Juno (OW), Sable Ward (DBD), Goob (DW)
 </div>
 
 <div align="center">
