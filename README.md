@@ -71,7 +71,7 @@
 </div>
 
 <div align="center">
-  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Shadow The Hedgehog, Ron From Accounting (aha), Sebastian Solace
+  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Edward Richtofen, Ron From Accounting, Sebastian Solace, Shadow T. Hedgehog
 </div>
 
 <div align="center">
