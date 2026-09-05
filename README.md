@@ -55,7 +55,7 @@
 </div>
 
 <div align="center">
-  Overwatch, Dead By Daylight, Sonic, Dark Souls, Animal Hospital, Pressure
+  Overwatch, Dead By Daylight, Sonic, Dark Souls, Animal Hospital, Pressure, Call of Duty
 </div>
 
 <div align="center">
