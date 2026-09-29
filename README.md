@@ -23,11 +23,11 @@
 </div>
 
 <div align="center">
-  c+h ALWAYSSS okay with me , w2i if I have afk/off-tab in name !
+  c+h ALWAYSSS okay with me , esp Overwatch/Resident Evil fans mwah !
 </div>
 
 <div align="center">
-  I am engaged so pleassseee chill with the flirting jokes everypony..
+  I'm afk and off-tab VERY often, so w2i is always a good idea
 </div>
 
 <div align="center">
@@ -43,39 +43,15 @@
 </div>
 
 <div align="center">
-  !!! I get confused very easy, pls be patient !!!
+  I have veryyyy very many interests
 </div>
 
 <div align="center">
-  My fandoms/hyperfixations vv (belowww)
+  But my current faves are Overwatch, Resident Evil, and Devil May Cry :D
 </div>
 
 <div align="center">
-  Devil May Cry, Dandy's World, Resident Evil, Hellsing + Hellsing Ultimate
-</div>
-
-<div align="center">
-  Overwatch, Dead By Daylight, Sonic, Dark Souls, Animal Hospital, Pressure, Call of Duty
-</div>
-
-<div align="center">
-  Feel free to int with me !! I am offtab/afk often, so I'm sorry if i don't reply right away :(
-</div>
-
-<div align="center">
-  Discord - wolfiesarus  :  I'd love to meet new friends hehe
-</div>
-
-<div align="center">
-  I am a poly-yumeshipper (multiple F/O's) !!! please dni if you're uncomf with that :c i mostly mirror-share !
-</div>
-
-<div align="center">
-  Main F/O's -> V (dmc5), Leon Kennedy, Emre Sarıoğlu, Sebastian Solace, Ron From Accounting
-</div>
-
-<div align="center">
-  Kins -> Silver T. Hedgehog, Nero (DMC4-5), Juno (OW), Sable Ward (DBD), Goob (DW), Leon Kennedy
+  Other things I enjoy are Dead By Daylight, Dark Souls 3, Call of Duty, and Dragon Ball !
 </div>
 
 <div align="center">
@@ -83,7 +59,23 @@
 </div>
 
 <div align="center">
-  Check out my strawpage n' ata for a free hug yayayayaya
+  pspspsps you should totally play Overwatch with me btw, heh (D3vilTr1gger#1739)
+</div>
+
+<div align="center">
+  I mainly play support, and enjoy playing literally anything but stadium sighs
+</div>
+
+<div align="center">
+  You'll probably see me mostly sitting in the OW area as my Cass or Genji ! ^^
+</div>
+
+<div align="center">
+  ⸝⸝
+</div>
+
+<div align="center">
+  [ If anyone wants to be friends, feel free to add me on discord @ wolfiesarus ! ]
 </div>
 
 <div align="center">
