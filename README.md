@@ -15,7 +15,7 @@
 </div>
 
 <div align="center">
- ⩇⩇:⩇⩇
+ 𐂯
 </div>
 
 <div align="center">
@@ -35,7 +35,7 @@
 </div>
 
 <div align="center">
-  ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
+ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 </div>
 
 <div align="center">
@@ -43,11 +43,7 @@
 </div>
 
 <div align="center">
-  ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
-</div>
-
-<div align="center">
-  ⸝⸝
+ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 </div>
 
 <div align="center">
@@ -67,15 +63,7 @@
 </div>
 
 <div align="center">
-═════════════════════════════
-</div>
-
-<div align="center">
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-</div>
-
-<div align="center">
-‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹ 
+𐂯
 </div>
 
 <div align="center">
