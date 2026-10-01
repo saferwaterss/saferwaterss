@@ -1,3 +1,11 @@
+
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=saferwaterss&label=Residents&color=grey&style=plastic&base=1290&abbreviated=true)
+
+</div>
+
+
 <div align="center">
   <img src="https://64.media.tumblr.com/08f2ef8d5e01f92763b6feaa71c36e26/58a5e432ae336534-28/s1280x1920/afe45e0f1b87655b5a0234f4fca7d24b1608bbf8.gifv" alt="LEON GRAPHIC BIG">
 </div>
@@ -39,18 +47,6 @@
 </div>
 
 <div align="center">
-  I have veryyyy very many interests
-</div>
-
-<div align="center">
-  But my current faves are Overwatch, Resident Evil, and Devil May Cry :D
-</div>
-
-<div align="center">
-  Other things I enjoy are Dead By Daylight, Dark Souls 3, Call of Duty, and Dragon Ball !
-</div>
-
-<div align="center">
   ⸝⸝
 </div>
 
@@ -60,10 +56,6 @@
 
 <div align="center">
   I mainly play support, and enjoy playing literally anything but stadium sighs
-</div>
-
-<div align="center">
-  You'll probably see me mostly sitting in the OW area as my Cass or Genji ! ^^
 </div>
 
 <div align="center">
@@ -88,12 +80,6 @@
 
 <div align="center">
   <img src="https://64.media.tumblr.com/17865a12bf943ca9465a857b15285cfe/58a5e432ae336534-42/s640x960/838f4c1c46a686d125c167c4997b8ea48c80e2bb.gifv" alt="STARS">
-</div>
-
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=saferwaterss&label=Residents&color=grey&style=plastic&base=1290&abbreviated=true)
-
 </div>
 
 <div align="center">
