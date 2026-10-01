@@ -19,19 +19,19 @@
 </div>
 
 <div align="center">
-  Helloww I'm Kieran <3
+  Hallo ! I'm Kieran, but feel free to call me Key or Kovu as well !
 </div>
     
 <div align="center">
-  He/Him/His + I am 22 so PLEASEE iwec if under 18 ^^
+  He/Him/His + I am 22 so PLEASEE iwec if under 18 ;w;
 </div>
 
 <div align="center">
-  c+h ALWAYSSS okay with me , esp Overwatch/Resident Evil fans mwah !
+  c+h ALWAYSSS okay with me , esp Overwatch/Resident Evil fans, mwah /p !
 </div>
 
 <div align="center">
-  I'm afk and off-tab VERY often, so w2i is always a good idea
+  I'm afk/off-tab VERY often, so w2i is always a good idea
 </div>
 
 <div align="center">
@@ -51,7 +51,7 @@
 </div>
 
 <div align="center">
-  I mainly play support, and enjoy playing literally anything but stadium sighs
+  I mainly play support, and enjoy playing literally anything but stadium, sighs
 </div>
 
 <div align="center">
