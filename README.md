@@ -1,13 +1,9 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/9b721be3dd435fbffa9143d8d80ed770/632ca4d7b8a688d8-fb/s400x600/d09d87a80736bbf7acf1d8385b2ea45a8e477d6e.gifv" alt="rose divider">
+  <img src="https://64.media.tumblr.com/08f2ef8d5e01f92763b6feaa71c36e26/58a5e432ae336534-28/s1280x1920/afe45e0f1b87655b5a0234f4fca7d24b1608bbf8.gifv" alt="LEON GRAPHIC BIG">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/027dc00e02865dadb3b794f3d9b963d6/8fb6ded54ae7f514-ed/s250x400/ab0b24837a2c120afcdf0da8a56c668e4e61da42.pnj" alt="book stamp">
-</div>
-
-<div align="center">
-  <img src="https://64.media.tumblr.com/44a3b8e70a45847056f6457cde3e6d4e/c81ccb3951f5db6d-21/s400x600/ba56edc6bddd28820a4faae94afe9211e0a2e82a.gifv" alt="words stamp">
+  <img src="https://64.media.tumblr.com/17865a12bf943ca9465a857b15285cfe/58a5e432ae336534-42/s640x960/838f4c1c46a686d125c167c4997b8ea48c80e2bb.gifv" alt="STARS">
 </div>
 
 <div align="center">
@@ -35,7 +31,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/cf3ff15266560eba695f0d50d2257351/198b82be58eb73d2-92/s250x400/6a0b35acee5a922f073b58c2ab0e56971fb5fe0a.gifv" alt="v stamp">
+  <img src="https://64.media.tumblr.com/7c34729244ad4bcfe216f22159985293/43e796fd77866d74-ac/s2048x3072/3a7e927a072739afcc2512c4cec84cdedffae364.pnj" alt="SWORD STICKER">
 </div>
 
 <div align="center">
@@ -92,31 +88,31 @@
 
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/048e7c985205f80417f3ff0e44a342bd/4c050c492c560ed6-0d/s250x400/1ce43485da5825dddb6dfebb6d81a277596b0655.pnj" alt="heart blinkie">
+  <img src="https://64.media.tumblr.com/cac1dc7946bec5cf8e3b2dfef2f510cb/58a5e432ae336534-a3/s2048x3072/7da71963fcb0610f329c1823257b765049f88e42.pnj" alt="BLACK AND WHITE OMBRE DIVIDER">
 </div>
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=saferwaterss&label=Demons&color=blueviolet&style=plastic&base=1290&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=saferwaterss&label=Friends&color=grey&style=plastic&base=1290&abbreviated=true)
 
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/96a1a311fffbf451ee098ce993db5450/da87c4a1be3fb075-a8/s100x200/ebac66f507e4ee0fb62b7a015573fba8f397276b.pnj" alt="blot stamp">
+  <img src="https://64.media.tumblr.com/3fbfe75ef49d5e084d34288e9973f151/3d60bbdbe30a7e54-83/s1280x1920/8908fad34a2c96d83786ea766c5cb73388b0fc19.pnj" alt="BONE STICKER">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/bf8f8a05462aec11eb2c03b6c26114e4/437b996daeeb918d-ed/s400x600/2e09170845fb774330795e02df258d5c14ea5923.pnj" alt="purp heart small divider">
+  <img src="https://64.media.tumblr.com/fbc5d73356a5a882da378459753f3814/294f21b99e6bed60-f9/s640x960/f27836e1cfee0f0689f868bc0a2fc50bfc3cbdc4.pnj" alt="CANDLES STICKER">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/516da6d5e269fdbc3ce02e994a1919ad/35b42dd1a627610b-a8/s400x600/f7d34d2658f07314f0e6a15328c7d20c499624bd.gifv" alt="blot sticker">
+  <img src="https://64.media.tumblr.com/8cc5445aced91d95491c5a1ec99f12fa/58a5e432ae336534-46/s1280x1920/073fb333f2c3cd2c6aa6a6f3c0969eec34d2c39d.pnj" alt="LEON NENDROID GRAPHIC">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/4965342aa348b0f782ab2a3f42e8e0bb/437b996daeeb918d-31/s400x600/ea8943b78ce11a56343116797b64f238643109f8.gifv" alt="purp heart divider">
+  <img src="https://64.media.tumblr.com/9bdaa738c98c05b473b60306d19efd0b/294f21b99e6bed60-53/s1280x1920/43e341436a02f6c91869aaad84c32f7d7d70945d.pnj" alt="YOUR BLOOD WHISPERS MY NAME STICKER">
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/9b721be3dd435fbffa9143d8d80ed770/632ca4d7b8a688d8-fb/s400x600/d09d87a80736bbf7acf1d8385b2ea45a8e477d6e.gifv" alt="rose divider">
+  <img src="https://64.media.tumblr.com/1dc6b397352051d0382e89b7a87a580b/58a5e432ae336534-66/s1280x1920/4f11ff014879d309c2aac46ac8ebedb5952bd99c.pnj" alt="LEON MEDIUM SIZED GRAPHIC">
 </div>
