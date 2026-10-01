@@ -55,7 +55,7 @@
 </div>
 
 <div align="center">
-  ⸝⸝
+  ✦
 </div>
 
 <div align="center">
@@ -68,10 +68,6 @@
 
 <div align="center">
   <img src="https://64.media.tumblr.com/17865a12bf943ca9465a857b15285cfe/58a5e432ae336534-42/s640x960/838f4c1c46a686d125c167c4997b8ea48c80e2bb.gifv" alt="STARS">
-</div>
-
-<div align="center">
-  <img src="https://64.media.tumblr.com/9bdaa738c98c05b473b60306d19efd0b/294f21b99e6bed60-53/s1280x1920/43e341436a02f6c91869aaad84c32f7d7d70945d.pnj" alt="YOUR BLOOD WHISPERS MY NAME STICKER">
 </div>
 
 <div align="center">
