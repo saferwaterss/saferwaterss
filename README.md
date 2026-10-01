@@ -39,7 +39,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/8cc5445aced91d95491c5a1ec99f12fa/58a5e432ae336534-46/s1280x1920/073fb333f2c3cd2c6aa6a6f3c0969eec34d2c39d.pnj" alt="LEON NENDROID GRAPHIC">
+  I love love love music and basically anything horror/Halloween related
 </div>
 
 <div align="center">
