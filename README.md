@@ -27,7 +27,7 @@
 </div>
 
 <div align="center">
-  c+h ALWAYSSS okay with me , esp Overwatch/Resident Evil fans, mwah /p !
+  c+h ALWAYSSS okay with me , esp Overwatch/Resident Evil/DMC fans, mwah /p !
 </div>
 
 <div align="center">
